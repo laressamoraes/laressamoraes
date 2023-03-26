@@ -4,4 +4,4 @@
 - 🌱 I am currently learning many things and Java.
 - 📩 laressa.luisy@hotmail.com
 - 😄 Pronouns: she/her.
-- 💬 Ask me about animes, k-dramas recommendations 🥰... and programming.
+- 💬 Ask me about animes, k-drama recommendations 🥰... and programming.
